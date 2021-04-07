@@ -1,0 +1,1 @@
+![경북대학교](https://upload.wikimedia.org/wikipedia/commons/7/7a/%EA%B2%BD%EB%B6%81%EB%8C%80%ED%95%99%EA%B5%90%EB%B3%B8%EA%B4%80%EC%82%AC%EC%A7%84.jpg)]
